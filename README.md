@@ -38,7 +38,7 @@ $$\color{#d3e4bd} 777 $$
 
 </br>
 
-<img align="left" width="300" height="300" alt="image" src="54e61013c6282a582b4f203a4c527b76-Photoroom-Photoroom-Photoroom.png"/>
+<img align="left" width="280" height="300" alt="image" src="54e61013c6282a582b4f203a4c527b76-Photoroom-Photoroom-Photoroom.png"/>
 
  </br>
 
