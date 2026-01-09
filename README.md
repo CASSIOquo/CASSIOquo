@@ -76,8 +76,8 @@ $$\color{#d3e4bd} 777 $$
 
 </br>
 
-  <p style="text-align: center;">$$\color{#d3e4bd} everybody⠀loves⠀somebody⠀sometime $$
-  <p style="text-align: center;">$$\color{#d3e4bd} everybody⠀falls⠀in⠀love⠀somehow $$
+<p style="text-align: center;">$$\color{#d3e4bd} everybody⠀loves⠀somebody⠀sometime $$
+<p style="text-align: center;">$$\color{#d3e4bd} everybody⠀falls⠀in⠀love⠀somehow $$
 
   </br>
 
