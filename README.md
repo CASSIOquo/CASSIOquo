@@ -6,7 +6,7 @@
 $$\color{#d3e4bd} 777 $$
   
 <div align="center">
-<img width="500" height="500" alt="image" src="4bf5832797d6e9d3d2bd9cc6c4015477.jpg"/>
+<img width="400" height="500" alt="image" src="4bf5832797d6e9d3d2bd9cc6c4015477.jpg"/>
 
 </br>
 
@@ -78,6 +78,8 @@ $$\color{#d3e4bd} 777 $$
 
   <p style="text-align: center;">$$\color{#d3e4bd} everybody⠀loves⠀somebody⠀sometime $$
   <p style="text-align: center;">$$\color{#d3e4bd} everybody⠀falls⠀in⠀love⠀somehow $$
+
+  </br>
 
 <div align="left">
 <img width="190" alt="image" src="3f06d0d1-bb18-4de3-bd95-b08dab8cf198.jpg"/>
