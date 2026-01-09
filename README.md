@@ -1,8 +1,6 @@
 <div align="center">
 <img width="200" height="429" alt="image" src="cb5dfadb5ffa2fbfcfe56653a8eb2a06-Photoroom.png"/><img width="200" height="429" alt="image" src="cb5dfadb5ffa2fbfcfe56653a8eb2a06-Photoroom.png"/><img width="200" height="429" alt="image" src="cb5dfadb5ffa2fbfcfe56653a8eb2a06-Photoroom.png"/>
 
-</br>
-
 $$\color{#d3e4bd} 777 $$
   
 <div align="center">
@@ -76,8 +74,8 @@ $$\color{#d3e4bd} 777 $$
 
 </br>
 
-<p style="text-align: center;">$$\color{#d3e4bd} everybody⠀loves⠀somebody⠀sometime $$
-<p style="text-align: center;">$$\color{#d3e4bd} everybody⠀falls⠀in⠀love⠀somehow $$
+<p style="text-align: right;">$$\color{#d3e4bd} everybody⠀loves⠀somebody⠀sometime $$
+<p style="text-align: right;">$$\color{#d3e4bd} everybody⠀falls⠀in⠀love⠀somehow $$
 
   </br>
 
