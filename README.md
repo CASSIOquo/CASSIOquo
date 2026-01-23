@@ -18,7 +18,7 @@
 <p align="center">
  $${\color{#39859f}choleric-\color{#f59652}introvert}$$ <br>
 <p align="center">
-$${\color{#39859f}mostly⠀\color{#f59652}afk⠀\color{#39859f}or⠀\color{#f59652}play⠀\color{#39859f}w⠀\color{#f59652}my⠀\color{#39859f}friends⠀\color{#f59652}but⠀\color{#39859f}feel⠀\color{#f59652}free⠀\color{#39859f}to⠀\color{#f59652}int⠀\color{#39859f}anyway}$$ <br>
+$${\color{#39859f}mostly⠀\color{#f59652}afk⠀\color{#39859f}or⠀\color{#f59652}play⠀\color{#39859f}w⠀\color{#f59652}my⠀\color{#39859f}friends⠀\color{#f59652}but⠀\color{#39859f}feel⠀\color{#f59652}free⠀\color{#39859f}2⠀\color{#f59652}int⠀\color{#39859f}anyway}$$ <br>
 <p align="center">
 $${\color{#39859f}c+h⠀\color{#f59652}freely\color{#39859f}!}$$ <br>
 <p align="center">
