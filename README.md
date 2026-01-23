@@ -38,6 +38,4 @@ $${\color{#39859f}ru/\color{#f59652}eng}$$ <br>
   <br>
   <div align="center">
 <img width="240" alt="image" src="7a3506b5ed15bcceaae352d2f678cfb1-Photoroom-no-bg-preview (carve.photos).png"/>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=17&duration=2820&pause=40&color=f59652&multiline=true&repeat=false&width=400&height=99&lines=luv+them;@x36w5r+<33;@b3drosk1+<33;u+guys+are+so+cool+i+love+you+so+mucjhjhjh" alt="Typing SVG" /></a>
-</p>
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&duration=3000&pause=10&color=F59652&multiline=true&width=500&height=200&lines=luv+them;%40b3drosk1+%3C33;%40x36w5r+%3C33+;u+guys+are+so+cool+i+love+you+so+muchjhjjh" alt="Typing SVG" /></a>
