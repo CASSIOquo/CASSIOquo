@@ -30,6 +30,7 @@ $${\color{#39859f}ru/\color{#f59652}eng}$$ <br>
 
 <p align="center">
 ┄  –  ┄   ꒰   ୨  ♡   ୧  ꒱   ┄  –  ┄
+
   
 <div align="right">
 <img width="200" height="429" alt="image" src="2c752d14d8a0b5d4e362b7dd813890fc-no-bg-preview (carve.photos).png"/>
