@@ -1,75 +1,42 @@
-<div align="center">
-<img width="200" height="429" alt="image" src="cb5dfadb5ffa2fbfcfe56653a8eb2a06-Photoroom.png"/><img width="200" height="429" alt="image" src="cb5dfadb5ffa2fbfcfe56653a8eb2a06-Photoroom.png"/><img width="200" height="429" alt="image" src="cb5dfadb5ffa2fbfcfe56653a8eb2a06-Photoroom.png"/>
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Almendra+SC&size=25&duration=2500&pause=1000&color=f59652&center=true&width=435&lines=%E2%80%98But+with+everybody+watching+us.%E2%80%99;%E2%80%98our+every+move.%E2%80%99;%E2%80%98we+do+have+reputations.%E2%80%99;%E2%80%98we+keep+it+secret.%E2%80%99;%E2%80%98won't+let+them+have+it.%E2%80%99"/>
+</p>
 
-$$\color{#d3e4bd} 777 $$
+ <p align="center">    
+—————————————　✦　—————————————
+ </br>
+<img align="left" width="400" alt="image" src="5576760e2704ddb0110a221ca6cc8b2e (1)-no-bg-preview-edited-free (carve.photos) (2).png" />
+
+
+<p align="center">
+┄  –  ┄   ꒰   ୨  ♡   ୧  ꒱   ┄  –  ┄
+
+<p align="center">
+ $${\color{#39859f}nickname-\color{#f59652}will/\color{#39859f}crecet}$$ <br>‎
+<p align="center">
+ $${\color{#39859f}INTP}$$ <br>
+<p align="center">
+ $${\color{#39859f}choleric-\color{#f59652}introvert}$$ <br>
+<p align="center">
+$${\color{#39859f}mostly⠀\color{#f59652}afk⠀\color{#39859f}or⠀\color{#f59652}play⠀\color{#39859f}w⠀\color{#f59652}my⠀\color{#39859f}friends⠀\color{#f59652}but⠀\color{#39859f}feel⠀\color{#f59652}free⠀\color{#39859f}to⠀\color{#f59652}int⠀\color{#39859f}anyway}$$ <br>
+<p align="center">
+$${\color{#39859f}c+h⠀\color{#f59652}freely\color{#39859f}!}$$ <br>
+<p align="center">
+$${\color{#39859f}i⠀\color{#f59652}can⠀\color{#39859f}be⠀\color{#f59652}kinda⠀\color{#39859f}awkward⠀\color{#f59652}sometimes⠀\color{#39859f}srry}$$ <br>    
+<p align="center">
+$${\color{#39859f}ru/\color{#f59652}eng}$$ <br> 
+
+<br>
+
+<p align="center">
+┄  –  ┄   ꒰   ୨  ♡   ୧  ꒱   ┄  –  ┄
   
-<div align="center">
-<img width="400" height="500" alt="image" src="4bf5832797d6e9d3d2bd9cc6c4015477.jpg"/>
+<div align="right">
+<img width="200" height="429" alt="image" src="2c752d14d8a0b5d4e362b7dd813890fc-no-bg-preview (carve.photos).png"/>
 
-</br>
+  <br>
+  <div align="center">
+<img width="240" alt="image" src="7a3506b5ed15bcceaae352d2f678cfb1-Photoroom-no-bg-preview (carve.photos).png"/>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=17&duration=3000&pause=660&color=f59652&multiline=true&repeat=false&width=400&height=99&lines=luv+them;@x36w5r+<33;@b3drosk1+<33;u+guys+are+so+cool+i+love+you+so+mucjhjhjh" alt="Typing SVG" /></a>
+</p>
 
-<img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=lightgreen&right_color=lightgreen&left_text=VISITORS;"/>
-
-<div align="center">
-<img width="800" height="200" alt="image" src="93147ccf9726a0250cb8079d0eec1b9e-Photoroom.png"/>
-
-<img align="left" width="300" height="300" alt="image" src="af875627cbaa5a99027f80bcfa608d2d.jpg"/>
-
-  </br>
-
-<table>
-  <tr>
-    <th>
-     $$\color{#d3e4bd} nickname - will/crecet $$ <br>
-      $$\color{#d3e4bd} bday⠀01.02 $$ <br>
-      $$\color{#d3e4bd} INTP $$ <br>
-      $$\color{#d3e4bd} choleric>introvert $$ <br>
-      $$\color{#d3e4bd} mostly⠀afk⠀or⠀play⠀w⠀my⠀friends⠀but⠀feel⠀free⠀to⠀interact⠀anyway $$ <br>
-      $$\color{#d3e4bd} c+h⠀freely! $$ <br>
-      $$\color{#d3e4bd} I⠀can⠀be⠀kinda⠀awkward⠀sometimes⠀srry $$ <br>
-      $$\color{#d3e4bd} ru/eng $$ <br>
-     
-</th>
-</tr>
-</table>
-
-
-<img align="center" width="300" height="300" alt="image" src="4b079106ead44a7d0d478e5d607d1aab.jpg"/>
-
-</br>
-
-<img align="left" width="300" height="300" alt="image" src="54e61013c6282a582b4f203a4c527b76-Photoroom-Photoroom-Photoroom.png"/>
-
- </br>
-
-<table>
-  <tr>
-    <th>
-     $$\color{#d3e4bd} DNI $$ <br>
-      $$\color{#d3e4bd} shelby⠀supports $$ <br>
-      $$\color{#d3e4bd} shopdebt⠀fans $$ <br>
-      
-     
-</th>
-</tr>
-</table>
-
- </br>
-
-<table>
-  <tr>
-    <th>
-     $$\color{#d3e4bd} IWC $$ <br>
-      $$\color{#d3e4bd} TRUD⠀fans $$ <br>
-      $$\color{#d3e4bd} dandys⠀world⠀fans $$ <br>
-      
-     
-</th>
-</tr>
-</table>
-
-<p style="text-align: center;">$$\color{#d3e4bd} everybody⠀loves⠀somebody⠀sometime $$
-<p style="text-align: center;">$$\color{#d3e4bd} everybody⠀falls⠀in⠀love⠀somehow $$
-
-<div align="left">
-<img width="190" alt="image" src="3f06d0d1-bb18-4de3-bd95-b08dab8cf198.jpg"/>
