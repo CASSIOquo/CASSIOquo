@@ -14,7 +14,7 @@
 <p align="center">
  $${\color{#39859f}nickname-\color{#f59652}will/\color{#39859f}crecet}$$ <br>‎
 <p align="center">
- $${\color{#39859f}INTP}$$ <br>
+ $${\color{#f59652}INTP}$$ <br>
 <p align="center">
  $${\color{#39859f}choleric-\color{#f59652}introvert}$$ <br>
 <p align="center">
