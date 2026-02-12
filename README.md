@@ -2,18 +2,7 @@
 <img width="710" alt="image" src="From KlickPin CF Pin em L Lawliet.gif">
 
 <br>
-<p align="center">
- $${\color{#ad1f18}nickname-will}$$ ‎
- <p align="center">
- $${\color{#ad1f18}intp}$$ <br>
-   <p align="center">
- $${\color{#ad1f18}mostly⠀afk⠀or⠀play⠀w⠀my⠀friends⠀but⠀feel⠀free⠀2⠀int⠀anyway}$$ <br>
-     <p align="center">
- $${\color{#ad1f18}c+h⠀freely}$$ <br>
-<p align="center">
- $${\color{#ad1f18}eng/ru}$$ <br>
-
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Pixelify+Sans&size=18&duration=2000&pause=100&color=AD1F18&center=true&vCenter=true&multiline=true&width=700&height=200&lines=nickname%E2%A0%80-%E2%A0%80will;intp;mostly%E2%A0%80afk%E2%A0%80or%E2%A0%80play%E2%A0%80w%E2%A0%80my%E2%A0%80+friends%E2%A0%80but%E2%A0%80feel%E2%A0%80free%E2%A0%802%E2%A0%80int%E2%A0%80anyway;c%2Bh%E2%A0%80freely;ru%2Feng" alt="Typing SVG" /></a>
   <div align="center">
 <img width="300" alt="image" src="PinDown.io_@fan_noa_sadie_1769140711.gif">
     
