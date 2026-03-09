@@ -41,10 +41,10 @@
 <p align="center">
 <a href="https://telegra.ph/fandoms-02-12-36"><img src="https://readme-typing-svg.demolab.com?font=Smooch+Sans&size=30&duration=1&pause=7000&color=8fbee6&center=true&vCenter=true&width=200&height=30&lines=%E2%80%98FANDOMS%E2%80%99"/>
   
-<p align="center"
+<p align="center">
 <a href="https://telegra.ph/dni-list-02-12-10"><img src="https://readme-typing-svg.demolab.com?font=Smooch+Sans&size=30&duration=1&pause=7000&color=8fbee6&center=true&vCenter=true&width=200&height=30&lines=%E2%80%98DNI%E2%80%99"/>
 
-<p align="center"
+<p align="center">
 <a href="https://guns.lol/cassi0"><img src="https://readme-typing-svg.demolab.com?font=Smooch+Sans&size=30&duration=1&pause=7000&color=8fbee6&center=true&vCenter=true&width=200&height=30&lines=%E2%80%98GUNS%E2%80%99"/>
 <br>
 
