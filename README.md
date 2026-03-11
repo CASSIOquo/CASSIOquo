@@ -46,6 +46,9 @@
 
 <p align="center">
 <a href="https://guns.lol/cassi0"><img src="https://readme-typing-svg.demolab.com?font=Smooch+Sans&size=30&duration=1&pause=7000&color=8fbee6&center=true&vCenter=true&width=200&height=30&lines=%E2%80%98GUNS%E2%80%99"/>
+
+  <p align="center">
+<a href="https://telegra.ph/kinnlist-03-06-3"><img src="https://readme-typing-svg.demolab.com?font=Smooch+Sans&size=30&duration=1&pause=7000&color=8fbee6&center=true&vCenter=true&width=200&height=30&lines=%E2%80%98KINNLIST%E2%80%99"/>
 <br>
 
 
@@ -69,6 +72,18 @@
   <br>
 <img align="left" width="100" alt="image" src="0450549cd7a6bfb76de7663d0a517279-Photoroom.png" />‎
 <img align="left" width="100" alt="image" src="aeabd9de3a7a4d1d23080d6c6a761e78-Photoroom.png" />
+
+ <br>
+  <br>
+   <br>
+    <br>
+     <br>
+      <br>
+       <br>
+        <br>
+        
+   <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=blue&right_color=blue&left_text=VISITORS;"/>
+
 
 
 
