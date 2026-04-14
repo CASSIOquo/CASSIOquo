@@ -48,7 +48,7 @@
   <img src="tumblr_d136f6dcae567e4dfed8700420f9eea6_7a1aaea6_1280.gif" alt="image" width="200" />
 </div>
  <br>
-<img align="left" width="600" alt="image" src="photo_5400065104730067450_x-Photoroom.png" />
+<img align="left" width="400" alt="image" src="photo_5400065104730067450_x-Photoroom.png" />
  <p align="right">
    <br>
    <br>
