@@ -1,4 +1,6 @@
 <div align="center">
+ <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=pink&right_color=pink&left_text=VISITORS;"/>
+<div align="center">
   <img src="e0ddeb12460919ced5c32f69511793c6.jpg" alt="image" width="600" />
 </div>
 <p align="center">
