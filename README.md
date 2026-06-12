@@ -44,7 +44,7 @@ shopdebt fans
 
 shelby supports
 
-iwc TRUD fans 
+IWC: TRUD fans, dandys world fans, pizzadebt fans, ярые фанаты турбины туриста
 
 </details>
 </div>
