@@ -3,7 +3,7 @@
   <br>
   <br>
  <div align="center">
-  <img src="d809c58a2922cfc3ac23b791259e33ec (1).jpg" alt="image" width="640" />
+  <img src="d809c58a2922cfc3ac23b791259e33ec (1).jpg" alt="image" width="600" />
 
   <div align="center">
 cassio  he \ she <img src="3a2bc8f8.gif" alt="image" width="20" />
