@@ -1,16 +1,76 @@
-## Hi there 👋
+<div align="center">
+ <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=grey&right_color=grey&left_text=>_>"/>
+  <br>
+  <br>
+ <div align="center">
+  <img src="d809c58a2922cfc3ac23b791259e33ec (1).jpg" alt="image" width="640" />
 
-<!--
-**CASSIOquo/CASSIOquo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  <div align="center">
+cassio  he \ she <img src="3a2bc8f8.gif" alt="image" width="20" />
+</div>
 
-Here are some ideas to get you started:
+      
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+
+bisexual⠀⠀>>taken 
+</div>
+⠀
+   <br>
+   <br>
+    <br>
+<a href="https://cassio0.carrd.co">FANDOMS</a> <p align="center"> 
+    <br>
+  <a href="https://en.pronouns.page/@cassioQUO">PRNS</a> <p align="center">
+      <br>
+<div align="center">
+  <details>
+
+<summary> byi  (˶˃ᆺ˂˶), , ,</summary>
+  
+   
+i struggle with anxiety  ,  pls keep this in mind before int wit me （˶′◡‵˶）,,
+  
+  
+my mental state is very unstable !! i DONT get any help and i dont go to a psychologist !FOR MY REASONS ,,
+  
+  
+i often act weird and can sometimes become quiet and withdrawn for no reason  ,,
+  
+  
+my humor is specific and can sometimes be offensive , just lemme know if you feel uncomfortable  ,,
+</details>
+</div>
+  <br>
+<div align="center">
+  <details>
+
+<summary> pt ( ̷ ̷^⩊^ ̷ ̷), , ,</summary>
+  
+   
+c+h freely for everyone⠀,⠀idc much ,,
+  
+  
+cover comfort when c+h  ,,
+  
+  
+w2i prefer unless we're friends  ,,
+  
+  
+i dont mind playing together  , but only if we know each other at least a little  ,,
+  
+
+i prolly wont actively chat wit yu if we dont know each other much , but i wouldnt mind sitting afk together  ,,
+</details>
+</div>
+
+<br>
+<br>
+<br>
+<br>
+ <div align="center">
+  <img src="IMG_8379.gif" alt="image" width="590" />
+<br>
+   <br>
+  <div align="center">
+  <img src="599b9665.gif" alt="image" width="90" />
