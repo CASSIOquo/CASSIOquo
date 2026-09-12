@@ -9,13 +9,6 @@
 cassio  he \ she <img src="3a2bc8f8.gif" alt="image" width="20" />
 </div>
 
-      
-
-<div align="center">
-
-bisexual⠀⠀>>taken 
-</div>
-⠀
    <br>
    <br>
     <br>
@@ -26,10 +19,10 @@ bisexual⠀⠀>>taken
 <div align="center">
   <details>
 
-<summary> byi  (˶˃ᆺ˂˶), , ,</summary>
+<summary> byi </summary>
   
    
-i struggle with anxiety  ,  pls keep this in mind before int wit me （˶′◡‵˶）,,
+i struggle with anxiety  ,  keep this in mind before int wit me ,,
   
   
 my mental state is very unstable !! i DONT get any help and i dont go to a psychologist !FOR MY REASONS ,,
@@ -45,7 +38,7 @@ my humor is specific and can sometimes be offensive , just lemme know if you fee
 <div align="center">
   <details>
 
-<summary> pt ( ̷ ̷^⩊^ ̷ ̷), , ,</summary>
+<summary> pt </summary>
   
    
 c+h freely for everyone⠀,⠀idc much ,,
