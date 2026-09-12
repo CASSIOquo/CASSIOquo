@@ -19,7 +19,7 @@ bisexual⠀⠀>>taken
    <br>
    <br>
     <br>
-<a href="https://cassio0.carrd.co">FANDOMS</a> <p align="center"> 
+<a href="https://cassioqquo.carrd.co">FANDOMS</a> <p align="center"> 
     <br>
   <a href="https://en.pronouns.page/@cassioQUO">PRNS</a> <p align="center">
       <br>
