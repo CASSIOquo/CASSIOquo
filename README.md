@@ -16,25 +16,7 @@ cassio  he \ she <img src="3a2bc8f8.gif" alt="image" width="20" />
     <br>
   <a href="https://en.pronouns.page/@cassioQUO">PRNS</a> <p align="center">
       <br>
-<div align="center">
-  <details>
 
-<summary> byi </summary>
-  
-   
-i struggle with anxiety  ,  keep this in mind before int wit me ,,
-  
-  
-my mental state is very unstable !! i DONT get any help and i dont go to a psychologist !FOR MY REASONS ,,
-  
-  
-i often act weird and can sometimes become quiet and withdrawn for no reason  ,,
-  
-  
-my humor is specific and can sometimes be offensive , just lemme know if you feel uncomfortable  ,,
-</details>
-</div>
-  <br>
 <div align="center">
   <details>
 
