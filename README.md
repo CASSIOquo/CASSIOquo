@@ -49,3 +49,8 @@ i prolly wont actively chat wit yu if we dont know each other much , but i would
    <br>
   <div align="center">
   <img src="599b9665.gif" alt="image" width="90" />
+
+  <p align="center"<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Annie+Use+Your+Telescope&duration=1&pause=1&color=F7F7F7&center=true&vCenter=true&repeat=false&width=435&lines=And+I+could+take+another+hit+for+you" alt="Typing SVG" /></a>
+  <p align="center"<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Annie+Use+Your+Telescope&duration=1&pause=1&color=F7F7F7&center=true&vCenter=true&repeat=false&width=435&lines=And+I+could+take+away+your+trips+from+you" alt="Typing SVG" /></a>
+  <p align="center"  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Annie+Use+Your+Telescope&duration=1&pause=1&color=F7F7F7&center=true&vCenter=true&repeat=false&width=435&lines=And+I+could+take+away+the+salt+from+your+eyes" alt="Typing SVG" /></a>
+    <p align="center" <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Annie+Use+Your+Telescope&duration=1&pause=1&color=F7F7F7&center=true&vCenter=true&repeat=false&width=435&lines=And+take+away+what's+been+assaulting+you" alt="Typing SVG" /></a>
