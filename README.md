@@ -14,8 +14,6 @@ cassio  he \ she <img src="3a2bc8f8.gif" alt="image" width="20" />
     <br>
 <a href="https://cassioqquo.carrd.co">FANDOMS</a> <p align="center"> 
     <br>
-  <a href="https://en.pronouns.page/@cassioQUO">PRNS</a> <p align="center">
-      <br>
 
 <div align="center">
   <details>
