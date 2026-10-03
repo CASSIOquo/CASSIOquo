@@ -1,5 +1,5 @@
 <div align="center">
- <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=darkred&right_color=grey&left_text=>_>"/>
+ <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=darkred&right_color=grey&left_text=ewe"/>
   <br>
   <br>
  <div align="center">
@@ -9,7 +9,7 @@
    <br>
    <br>
     <br>
-<a href="https://cassioqquo.carrd.co">FANDOMS</a> <p align="center"> 
+<a href="https://cassioqquo.carrd.co">,,,</a> <p align="center"> 
     <br>
 
  
