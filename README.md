@@ -2,12 +2,12 @@
 <p align="center">
           <img width="700" alt="IMG" src="d809c58a2922cfc3ac23b791259e33ec.jpg" />
 </p>
-<div align="center"><code style="color : red">я сожгу твои кроссовки, чтоб ты снова не пришла</code><br>
+<div align="center"><code style="color : red">music boyfriend, im your yum-yum. call me and i'll come!</code><br>
 
 -----    
 
 </p>
-<div align="center"><code style="color : red">я достану из кладовки дробь патронов для ружья</code><br>
+<div align="center"><code style="color : red">fuck the rest of them</code><br>
   <br>
 <div align="center">
  <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=darkred&right_color=grey&left_text=..."/>
@@ -32,17 +32,20 @@
    </table>
   <br>
      </p>
-<div align="center"><code style="color : red">и пускай друзья мне скажут, что все будет хорошо</code><br>
+<div align="center"><code style="color : red">fuck 'em all, fuck 'em all</code><br>
   
 -----
    </p>
-<div align="center"><code style="color : red">осторожен, ведь ты взглядом разъедаешь мне нутро</code><br>
+<div align="center"><code style="color : red">but us! ^w^</code><br>
   <br>
 <div align="center">
  <img width="700" alt="IMG" src="b3786ac32c244ef7bb855f7d3b43c18d.jpg" />
 <p align="center">
 </p>
-
+ </p>
+  
+-----
+   </p>
 
 
 
