@@ -37,7 +37,7 @@ ${\textsf{\color{#ffffff}under 14}}$
 </div>
 
 <p align="center">
- <a href="https://cassioqquo.carrd.co">fandoms</a> ; <a href="https://en.pronouns.page/@cassioQUO">prns</a> ; <a href="https://www.roblox.com/users/1199142414/profile">roblox</a> ; <a href="https://cassioquoinfo.carrd.co/#">more info</a>
+ <a href="https://cassioqquo.carrd.co">fandoms</a> ; <a href="https://en.pronouns.page/@ErrorFalsetype">prns</a> ; <a href="https://www.roblox.com/users/1199142414/profile">roblox</a> ; <a href="https://cassioquoinfo.carrd.co/#">more info</a>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Special+Elite&weight=200&duration=3000&pause=300&color=FAFFF7&center=true&vCenter=true&lines=im+sorry+im+not+strong;im+not+like+the+other+girls;yeah+i+wont+get+along;i+wont+talk+to+them%2C+im+sorry" alt="Typing SVG" /></a>
 
