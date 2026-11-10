@@ -16,7 +16,8 @@
 ${\textsf{\color{#494945}c+h freely w2i prefer}}$<br>
     ${\textsf{\color{#494945}↓}}$<br>
     ${\textsf{\color{#494945}dont mind sitting afk 2gether without chatting}}$<br>
-    ${\textsf{\color{#494945}cover/cuddle comfort when c+h}}$
+    ${\textsf{\color{#494945}cover/cuddle comfort when c+h}}$ <br>
+    ${\textsf{\color{#494945}taken}}$
   </details>
 </div>
 
