@@ -1,6 +1,6 @@
 ## <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=grey&right_color=grey&left_text=orbital"/>
 
-<p align="center">${\textsf{\color{#7b1d1d}  >.> ─────────⟨ ⟡ ⟩───────── <.< }}$
+<p align="center">${\textsf{\color{#2b2b28}  >.> ─────────⟨ ⟡ ⟩───────── <.< }}$
 
 <div align="center">
  <img width="300" alt="IMG" src="c9a081831f97623138ef12ede3a454bc.jpg" />
