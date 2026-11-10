@@ -1,4 +1,4 @@
-## <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=grey&right_color=grey&left_text=orbital"/>
+## <img src="https://visitor-badge.laobi.icu/badge?page_id=CASSIOquo.CASSIOquo&left_color=grey&right_color=grey&left_text=puppies"/>
 
 <p align="center">${\textsf{\color{#1e4f13}  >.> ─────────⟨ ⟡ ⟩───────── <.< }}$
 
