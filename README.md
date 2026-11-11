@@ -54,3 +54,6 @@ ${\textsf{\color{#494945}doublefedora / ichance haters}}$ <br>
  <img width="300" alt="IMG" src="a3918b88dd390bd3fbd061550c881368.jpg" />
  
  me n my bf
+
+ <div align="center">
+ <img width="200" alt="IMG" src="2026-11-11_16-08-44-Photoroom.png" />
